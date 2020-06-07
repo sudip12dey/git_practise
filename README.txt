@@ -2,6 +2,5 @@
 
 I love Gayathri Bubu.
 Hope I get my PhD with a full funding soon.
-I can barely recall which day it is.
 I want to return back to my work with Biostimulants and evaluating their actions in imparting stress tolerance to plants.
 Delineating gene expression profiles in host plants.
